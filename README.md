@@ -90,5 +90,5 @@ I enjoy engaging with like-minded professionals, sharing insights, and collabora
 
 ---
 
-📬 *Thanks for reading! Feel free to connect, share ideas, or collaborate on exciting projects. Always open to meaningful discussions and new challenges!*
+📬 *Thanks for reading! Feel free to connect, share ideas, or collaborate on exciting projects. Always open to meaningful discussions and new challenges!* 
 
